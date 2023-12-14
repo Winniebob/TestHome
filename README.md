@@ -10,10 +10,6 @@
 
 ![image](https://github.com/Winniebob/TestHome/assets/131287620/d30a51a4-88e1-452a-b15e-f8f9e448efcf)
 
-![image](https://github.com/Winniebob/TestHome/assets/131287620/20928b6d-8be4-4cb4-8314-694a259c127f)
-
-![image](https://github.com/Winniebob/TestHome/assets/131287620/d4f7ddc7-9766-45fe-a7b8-1aaaa52a62df)
-
 ![image](https://github.com/Winniebob/TestHome/assets/131287620/cf6bddd5-f22e-4035-a3b5-5476153bc2fc)
 
 ![image](https://github.com/Winniebob/TestHome/assets/131287620/c41c3a76-e814-4016-b34a-48f478aa1577)
